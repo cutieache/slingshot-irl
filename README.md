@@ -23,3 +23,4 @@
   (Phighting, mcARGS, Unstable universe, lifesteal transformers, fnaf, animal hospital, AVA, among us, eddsworld, DOD, DC & Marvel, GNB, regretevator, slendytubbies (including other creepypastas), etc,,)
 - I am a yumeshipper, i will not publically list my yumeships but this is only here for people who foam from the mouth hearing the word yumeship.
 - Please do not vent to me unless you're a friend of mine, yet if you are a friend of mine reassure to me that you can vent before you do end up doing so. I will reassure to you if i could vent also. 
+- Red & Green AUS kinnie!
