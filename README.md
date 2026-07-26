@@ -4,7 +4,7 @@
 - Random movement when afking or off-tab is likely casued by my cats, if this does end up happening (when away or sleeping) just expect me to disconnect after some time till i get back.
 - I do not usually int first unless it's with friends, no! I don't hate you anon, i simply just am shy.
 - Everyone is free to cuddle & hide freely, this is heavily enc as i seek comfort even if i am not that talkitive
-- I'd prefer if you whisper as it gets my attention more easier, i am fond of compliments either way! :)
+- I'd prefer if you whisper as it gets my attention more easier, i am fond of compliments either way! :) Ponytown decides to not ping me sometimes so if i don't reply to your whisper i am not ignoring you.
 - Kisses, boops, nuzzles are okay!
   
 *info for self*
