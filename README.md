@@ -14,3 +14,23 @@
 - I usually use ponies that i heavy kin, i would love if those who kin the same to int. :)
 - I am a yumeshipper, i will not publically list my yumeships but this is only here for people who foam from the mouth hearing the word yumeship.
 - Please do not vent to me unless you're a friend of mine, yet if you are a friend of mine reassure to me that you can vent before you do end up doing so. I will reassure to you if i could vent also. 
+
+*Fandoms &interests* 
+- Dandy's world
+- **Phighting**
+- Die of death
+- Animal hospital
+- FunHouse Cleancrew
+- Minecraft (mctubers , ARGS , horrror)
+- Thatmobs verity
+- GroxMC 
+- Unstable Universe , lifesteal , moneysmp , flightsmp
+- Animation vs Animator / Minecraft
+- Fnaf
+- Among us (show , remnant , logic , VSimp , OG)
+- Creepypasta (mostly slendytubbies ok)
+- Myths
+- Dc comics
+- Warrior cats
+
+ill put more here ok
